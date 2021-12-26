@@ -1,0 +1,1 @@
+# shegaZette.futurereadttalent
