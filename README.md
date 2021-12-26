@@ -1,1 +1,1 @@
-# shegaZette.futurereadttalent
+# shegaZette.futurereadytalent
